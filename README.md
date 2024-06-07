@@ -1,9 +1,9 @@
 # Nitro
 i make silly roblox shit
 
-He/Him
-\n Femboy
-\n 15
+<p>He/Him</p>
+<p>Femboy</p>
+<p>15</p>
 
 Oxide and NFLC only dev
 
