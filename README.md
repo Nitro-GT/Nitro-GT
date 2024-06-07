@@ -2,8 +2,8 @@
 i make silly roblox shit
 
 He/Him
-Femboy
-15
+\n Femboy
+\n 15
 
 Oxide and NFLC only dev
 
