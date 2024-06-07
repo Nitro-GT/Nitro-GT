@@ -1,5 +1,9 @@
 # Nitro
-stupid ass roblox scripter or smth lol
+i make silly roblox shit
+
+He/Him
+Femboy
+15
 
 Oxide and NFLC only dev
 
