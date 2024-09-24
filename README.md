@@ -1,10 +1,8 @@
 # Nitro
 i make silly roblox shit
 
-<p>He/Him</p>
-<p>Femboy</p>
-<p>15</p>
+<p>She/They</p>
+<p>14</p>
+<p>2007 (ish) dev</p>
 
-Oxide and NFLC only dev
-
-![alt text](https://i.imgur.com/E1b5jex.png)
+![alt text](https://i.imgur.com/rPIovXP.png)
